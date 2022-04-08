@@ -1,1 +1,1 @@
-# Scratch-Games
+# Scratch Games
